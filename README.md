@@ -1,4 +1,4 @@
-# WhatsApp-Messages
+# Endless-Data
 https://www.edatame.com/informationsecurity.html
-# WhatsApp-Messages
+# ZKteco-Dubai
 https://www.zkteco-dubai.com/information-security.html
