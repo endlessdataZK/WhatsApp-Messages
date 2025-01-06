@@ -1,4 +1,4 @@
 # Endless-Data
-https://www.edatame.com/informationsecurity.html
+https://www.edatame.com
 # ZKteco-Dubai
-https://www.zkteco-dubai.com/information-security.html
+https://www.zkteco-dubai.com
